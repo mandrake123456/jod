@@ -1,4 +1,10 @@
 kk   jod
+kk
+ sdl s
+ s 
+sd f
+ sdf 
+pad 
 padhai karo.
 ias vaiyas bano
 
